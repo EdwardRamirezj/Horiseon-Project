@@ -12,3 +12,4 @@ In the files you will find the following
 * **Sourced images that have been added to html doc.**
 
 
+![kNalAN%hQ%ClWPi3n0FjNQ_thumb_3](https://user-images.githubusercontent.com/129324160/233533474-63904913-59c4-4bcd-a886-002d6e12dccd.jpg)
